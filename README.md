@@ -1,0 +1,3 @@
+- Cao ja sam FiveM skripter 
+- Esx
+- nisam kastm
